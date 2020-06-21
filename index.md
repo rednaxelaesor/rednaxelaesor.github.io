@@ -14,6 +14,14 @@ Die Baudelaires werden nun immer neuen Vormündern zugewiesen, Olaf kann sie jed
 
 Eine schneidende Wendung nimmt der Verlauf, nachdem Olaf seinen Tod vortäuschen kann und die Baudelaires in das Mysterium des V.F.D. vordringen. Dabei ist es nun nicht länger Olafs primäres Ziel, die Baudelaires zu finden, sondern wichtige V.F.D.-Objekte wie die Snicket-Akte und die Zuckerdose zu lokalisieren. Bei dem Versuch, dies zu verhindern, erfahren die Baudelaires mehr über sowohl Olafs Vergangenheit als auch die Vergangenheit ihrer Eltern und die der geheimnisvollen Organisation V.F.D. Letztendlich bleibt jedoch genau so viel im Dunkeln wie erklärt wird, sodass selbst nach Olafs Tod im finalen Band der Serie nicht viel mehr über seine Beweggründe bekannt ist, als zuvor.
 
+## Über Graf Olaf und seine Rolle in der Serie
+
+- Graf Olaf ist der erste Vormund der Baudelaire-[Waisen](https://de.wikipedia.org/wiki/Waise) 
+- Wahrscheinlich der Verursacher des schrecklichen Feuers, das die Eltern der Kinder tötete. 
+- Er verfolgt die Waisen und versucht immer wieder, ihr Vermögen mit Gewalt und hinterlistigen Tricks an sich zu reißen. 
+- Obwohl er ein grauenvoller Schauspieler ist, schafft er es immer, die Vormünder und Mr. Poe mit seinen Verkleidungen und falschen Namen hereinzulegen. 
+- Dabei hilft ihm seine Schauspielertruppe, die aus einer merkwürdigen Zusammenstellung verschiedener Personen und seiner Freundin Esmé besteht.
+
 ## Verkleidungen
 
 Auf seiner Jagd nach den Baudelaires schlüpft Olaf in viele Verkleidungen. Mit diesen täuscht er interessanterweise sämtliche Erwachsenen, obwohl die Baudelaires den Schwindel sofort bemerken. Die Verkleidungen dienen außerdem dazu seine zwei stärksten visuellen Merkmale, seine Monobraue und das Tattoo in Form eines Auges auf seinem Fußknöchel, zu verbergen
