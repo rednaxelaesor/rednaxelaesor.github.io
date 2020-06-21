@@ -34,3 +34,11 @@ Auf seiner Jagd nach den Baudelaires schlüpft Olaf in viele Verkleidungen. Mit 
 - **Dupin**: Als Detektiv Dupin trägt Olaf eine moderne Sonnenbrille, sowie passende Schuhe um seine Merkmale zu verbergen.
 - **Matthathias**: Im Heimlich-Hospital gibt sich Olaf als Matthathias aus. Da er jedoch nur über einen Lautsprecher auftritt, gibt es hier keine Verkleidung.
 - **Kit Snicket**: Auf der Insel verkleidet sich Olaf als Kit Snicket um das Vertrauen der Einwohner zu erlangen. Diese durchschauen ihn jedoch sofort. Um Kits Schwangerschaft darzustellen nutzt Olaf den Taucherhelm mit dem Pilzsporenvirus als Bauch.
+
+## Zitate
+
+> Es gibt in der Schauspiererei kein ich.
+
+> Ist es das wert? Ist es das wirklich wert?
+
+> Das Theater wartet!
