@@ -42,3 +42,11 @@ Auf seiner Jagd nach den Baudelaires schlüpft Olaf in viele Verkleidungen. Mit 
 > Ist es das wert? Ist es das wirklich wert?
 
 > Das Theater wartet!
+
+## Bilder
+
+<img src=https://vignette.wikia.nocookie.net/antagonisten/images/9/98/Stefano-0.png/revision/latest?cb=20161208220110&path-prefix=de/>
+<img src=https://vignette.wikia.nocookie.net/antagonisten/images/0/03/MannMitBart.png/revision/latest?cb=20190101200429&path-prefix=de/>
+<img src=https://vignette.wikia.nocookie.net/antagonisten/images/1/11/OlafF%C3%A4ngtViolet.png/revision/latest?cb=20180331180019&path-prefix=de/>
+<img src=https://vignette.wikia.nocookie.net/antagonisten/images/5/56/OlafIstDschingis.png/revision/latest?cb=20180330145555&path-prefix=de/>
+
